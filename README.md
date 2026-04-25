@@ -1,1 +1,1 @@
-https://github.com/igorcernaev75364-hue/ono-tebe-nado-ad
+https://github.com/Smen-GL/ono-tebe-nado-ad
